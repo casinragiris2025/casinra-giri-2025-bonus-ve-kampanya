@@ -1,6 +1,8 @@
 # 🎰 Casinra Giriş 2025 – Promosyonlar ve Ücretsiz Free Spin Deneyimi
 
 > “Bazı siteler sadece para kazanma yeri değil, kendini tanıma alanıdır. Casinra tam da bu...”
+>![Casinra Freespin Promosyonu](./evergreen%20(3).jpg)
+> [🔗 Casinra Güncel Giriş Adresi (2025)](https://prvnu.co/Casinra)
 
 ## 📌 Hakkında
 
@@ -12,7 +14,8 @@ Bu yazıda, hem Casinra’nın sunduğu promosyonlara değindik hem de gerçek k
 ---
 
 ## 🧭 Sade, Basit, Etkileyici: Casinra Arayüzü
-
+> ![Casinra Freespin Promosyonu](./4TwZ8PumGs9M7t1X5esMIbAwT8lHXPbIq6NnOOIA.png)
+> 
 İlk dikkat çeken şey: **yalın tasarımı.**  
 Ne karmaşa var, ne de kafa karıştırıcı reklamlar.  
 Sadece siz ve oyun var.  
@@ -39,10 +42,12 @@ Ve bu sadelik, zamanla içsel bir oyun yolculuğuna dönüşüyor.
 
 ## 🔄 Zamanla Artan Güven ve Akış
 
+
 - 1000 – 2500 TL yatırımlarda **100 Free Spin**
 - 2500 – 4999 TL yatırımlarda **250 Free Spin**
 - 5000 TL ve üzeri yatırımlarda **500 Free Spin**
 - Spin değeri: **2 TL**
+- [🔗 Casinra Güncel Giriş Adresi (2025)](https://prvnu.co/Casinra)
 
 Her seviyede yeni bir oyun deneyimiyle karşılaştım.  
 Ama en önemlisi? **Çekim işlemleri sorunsuzdu.**
@@ -52,6 +57,8 @@ Ama en önemlisi? **Çekim işlemleri sorunsuzdu.**
 ---
 
 ## 🧘 Kendinle Oynamak
+> ![Casinra Giriş 2025](./CrwxzAzL1zAJLZlEg7N7rwuvwvY9RGV7xpBu41cE.jpg)
+
 
 Oyunların bana kazandırdığı sadece para değil, sabır ve farkındalık oldu.
 
