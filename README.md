@@ -11,7 +11,7 @@ Günümüzde birçok bahis sitesi bulunuyor. Ancak her biri, kendi tarzını ve 
 
 Bu yazıda, hem Casinra’nın sunduğu promosyonlara değindik hem de gerçek kullanıcı deneyimlerinden ilham aldık.
 
----
+
 
 ## 🧭 Sade, Basit, Etkileyici: Casinra Arayüzü
 > ![Casinra Freespin Promosyonu](./4TwZ8PumGs9M7t1X5esMIbAwT8lHXPbIq6NnOOIA.png)
@@ -21,7 +21,7 @@ Ne karmaşa var, ne de kafa karıştırıcı reklamlar.
 Sadece siz ve oyun var.  
 Ve bu sadelik, zamanla içsel bir oyun yolculuğuna dönüşüyor.
 
----
+
 
 ## 💬 Gerçek Bir Oyuncu Deneyimi
 
@@ -38,7 +38,7 @@ Ve bu sadelik, zamanla içsel bir oyun yolculuğuna dönüşüyor.
 
 > “Kazansan da, kazanmasan da kendini izliyorsun.”
 
----
+
 
 ## 🔄 Zamanla Artan Güven ve Akış
 
@@ -54,7 +54,6 @@ Ama en önemlisi? **Çekim işlemleri sorunsuzdu.**
 
 > “Bir ara 5000 TL'nin üzerine çıktım. Ama içimdeki ses, ‘dengeyi koru’ dedi hep.”
 
----
 
 ## 🧘 Kendinle Oynamak
 > ![Casinra Giriş 2025](./CrwxzAzL1zAJLZlEg7N7rwuvwvY9RGV7xpBu41cE.jpg)
@@ -67,7 +66,6 @@ Oyunların bana kazandırdığı sadece para değil, sabır ve farkındalık old
 Bu nedenle Casinra, sadece bir bahis sitesi değil.  
 Birçok kullanıcı gibi ben de, burada kendi ritmime ulaştım.
 
----
 
 ## 🗨️ Siz Ne Düşünüyorsunuz?
 
